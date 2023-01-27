@@ -1,1 +1,1 @@
-- Hi, I’m @RomanRaRa, and i am junior web developer!
+- Hi, I’m @RomanRaRa, and i am c++ developer ahHahahaAHHAHHahahhahaHAHAHAHAH!
